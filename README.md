@@ -1,0 +1,1 @@
+# shupmax_multipurpose_ecommerce
